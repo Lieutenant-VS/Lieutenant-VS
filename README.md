@@ -13,9 +13,7 @@
   
   Any / Mirror pronouns
 
-  sexuality - Pansexual
-  
-  Gender - Apagender, Interbinary
+  sexuality - Pansexual - Apagender - Interbinary
 
 
 </details>

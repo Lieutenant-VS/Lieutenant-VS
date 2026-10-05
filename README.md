@@ -48,6 +48,8 @@ $${\color{#2E8B57}\text{ Doctor, Survivor, Pink, Grey, Godfather, Noisemaker. }}
 </details>
 </div>
 
+<p align="center"> $${\color{#2E8B57}\text{ · · ⊰════⊱ ☆ ⊰════⊱ · · }}$$ </p>
+
 <div align="center">
 <details>
   <summary><b> Something. </b></summary>

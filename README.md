@@ -9,12 +9,19 @@
   <summary><b> Information </b></summary>
   <br>
 
-  Aaron/ Lieutenant 
-  
-  Any / Mirror pronouns
+ 🎖₊ $${\color{#BCBC02}\text{Aaron / Lieutenant }}$$
 
-  sexuality - Pansexual - Apagender - Interbinary
+ 🎖₊ $${\color{#BCBC02}\text{Any / Mirror Pronouns }}$$
 
+ 🎖₊ $${\color{#BCBC02}\text{Apagender+Interbinary - Pansexual}}$$
+
+ 🎖₊ $${\color{#BCBC02}\text{Boundaries : basic DNI, Trump/Prabowo supporter, Boundaries breaker. }}$$
+
+ 🎖₊ $${\color{#BCBC02}\text{my favorite animals were Swan, Arctic fox, owl, and snow leopard }}$$
+
+ 🎖₊ $${\color{#BCBC02}\text{I love coffee and tea }}$$
+
+ 🎖₊ $${\color{#BCBC02}\text{I see myself in Lieutenant, Scientist, Joker, Medic, Doctor, Lurker, Survivor, Pink, Grey, Godfather, Noisemaker. }}$$
 
 </details>
 </div>

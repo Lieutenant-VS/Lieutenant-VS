@@ -33,12 +33,17 @@ $${\color{#2E8B57}\text{ Doctor, Survivor, Pink, Grey, Godfather, Noisemaker. }}
   <summary><b> Interest </b></summary>
   <br>
 
-  ☆ 
+  $${\color{#f1ee8e}\text{☆₊}}$$  $${\color{#6A784B}\text{ Doomspire Defense }}$$
 
-  ☆ 
+  $${\color{#f1ee8e}\text{☆₊}}$$  $${\color{#6A784B}\text{ Visionary Squad }}$$
 
-  ☆ 
+  $${\color{#f1ee8e}\text{☆₊}}$$  $${\color{#6A784B}\text{ Among Us 「 Role, Show, Rodamrix, Vs imposter 』}}$$
 
+  $${\color{#f1ee8e}\text{☆₊}}$$  $${\color{#6A784B}\text{ Faith The Unholy Trinity}}$$
+
+  $${\color{#f1ee8e}\text{☆₊}}$$  $${\color{#6A784B}\text{ SCP }}$$
+
+  $${\color{#f1ee8e}\text{☆₊}}$$  $${\color{#6A784B}\text{ SuperSus }}$$
 
 </details>
 </div>

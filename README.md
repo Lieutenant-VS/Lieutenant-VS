@@ -4,6 +4,3 @@
 
 <p align="center"> Quoted.</p>
 
-<p align="center"> name / name.</p>
-
-<p align="center"> prn / prn. </p>

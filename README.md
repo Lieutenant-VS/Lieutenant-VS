@@ -21,7 +21,8 @@
 
  🎖₊ $${\color{#BCBC02}\text{I love coffee and tea }}$$
 
- 🎖₊ $${\color{#BCBC02}\text{I see myself in Lieutenant, Scientist, Joker, Medic, Doctor, Lurker, Survivor, Pink, Grey, Godfather, Noisemaker. }}$$
+ 🎖₊ $${\color{#BCBC02}\text{I see myself in Lieutenant, Scientist, Joker, Medic, Lurker
+ Doctor, Survivor, Pink, Grey, Godfather, Noisemaker. }}$$
 
 </details>
 </div>

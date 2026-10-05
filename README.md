@@ -2,27 +2,28 @@
 
 <img width="1530" height="1530" alt="Image" src="https://github.com/user-attachments/assets/7f63cf91-0f26-41e1-89eb-e6bc32081f02" />
 
-<p align="center"> Quoted.</p>
+<p align="center"> $${\color{#6A784B}\text{"Official Statement: This doesn't exist. I don't know what those two are on about."}}$$ </p>
 
 <div align="center">
 <details>
   <summary><b> Information </b></summary>
   <br>
 
- 🎖₊ $${\color{#BCBC02}\text{Aaron / Lieutenant }}$$
+🎖₊ $${\color{#2E8B57}\text{Aaron / Lieutenant }}$$
 
- 🎖₊ $${\color{#BCBC02}\text{Any / Mirror Pronouns }}$$
+🎖₊ $${\color{#2E8B57}\text{Any / Mirror Pronouns }}$$
 
- 🎖₊ $${\color{#BCBC02}\text{Apagender+Interbinary - Pansexual}}$$
+🎖₊ $${\color{#2E8B57}\text{Apagender+Interbinary - Pansexual}}$$
 
- 🎖₊ $${\color{#BCBC02}\text{Boundaries : basic DNI, Trump/Prabowo supporter, Boundaries breaker. }}$$
+🎖₊ $${\color{#2E8B57}\text{Boundaries : basic DNI, Trump/Prabowo supporter, Boundaries breaker. }}$$
 
- 🎖₊ $${\color{#BCBC02}\text{my favorite animals were Swan, Arctic fox, owl, and snow leopard }}$$
+🎖₊ $${\color{#2E8B57}\text{my favorite animals were Swan, Arctic fox, owl, and snow leopard }}$$
 
- 🎖₊ $${\color{#BCBC02}\text{I love coffee and tea }}$$
+🎖₊ $${\color{#2E8B57}\text{I love coffee and tea }}$$
 
- 🎖₊ $${\color{#BCBC02}\text{I see myself in Lieutenant, Scientist, Joker, Medic, Lurker
- Doctor, Survivor, Pink, Grey, Godfather, Noisemaker. }}$$
+🎖₊ $${\color{#2E8B57}\text{I see myself in Lieutenant, Scientist, Joker, Medic, Lurker, }}$$
+
+$${\color{#2E8B57}\text{ Doctor, Survivor, Pink, Grey, Godfather, Noisemaker. }}$$
 
 </details>
 </div>

@@ -4,3 +4,47 @@
 
 <p align="center"> Quoted.</p>
 
+<div align="center">
+<details>
+  <summary><b> Information </b></summary>
+  <br>
+
+  Aaron/ Lieutenant 
+  
+  Any / Mirror pronouns
+
+  sexuality - Pansexual
+  
+  Gender - Apagender, Interbinary
+
+
+</details>
+</div>
+
+<div align="center">
+<details>
+  <summary><b> Interest </b></summary>
+  <br>
+
+  ☆ 
+
+  ☆ 
+
+  ☆ 
+
+
+</details>
+</div>
+
+<div align="center">
+<details>
+  <summary><b> Something. </b></summary>
+  <br>
+
+  wip
+
+  wip
+
+
+</details>
+</div>

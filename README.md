@@ -1,6 +1,6 @@
 ## in wip
 
-<img width="1530" height="1530" alt="Image" src="https://github.com/user-attachments/assets/7f63cf91-0f26-41e1-89eb-e6bc32081f02" />
+<img width="1530" height="1530" alt="Image" src="https://github.com/user-attachments/assets/0d5183ed-489d-4212-85cf-d92a41364c47" />
 
 <p align="center"> $${\color{#6A784B}\text{"Official Statement: This doesn't exist. I don't know what those two are on about."}}$$ </p>
 

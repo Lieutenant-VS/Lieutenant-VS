@@ -23,9 +23,9 @@
 
 🎖₊ $${\color{#2E8B57}\text{ I block freely.}}$$
 
-🎖₊ $${\color{#2E8B57}\text{ Always IWC/CAREUF }}
+🎖₊ $${\color{#2E8B57}\text{ Always IWC/CAREUF }}$$
 
-🎖₊ $${\color{#2E8B57}\text{ I sometimes have TD/CD. be aware. }}
+🎖₊ $${\color{#2E8B57}\text{ I sometimes have TD/CD. be aware. }}$$
 
 🎖₊ $${\color{#2E8B57}\text{my favorite animals were Swan, Arctic fox, owl, and snow leopard }}$$
 

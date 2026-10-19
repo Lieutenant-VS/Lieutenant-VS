@@ -4,6 +4,8 @@
 
 <p align="center"> $${\color{#6A784B}\text{"Official Statement: This doesn't exist. I don't know what those two are on about."}}$$ </p>
 
+<p align="center"> $${\color{#2E8B57}\text{ · · ⊰═══════⊱ ☆ ⊰═══════⊱ · · }}$$ </p>
+
 <div align="center">
 <details>
   <summary><b> Information </b></summary>
@@ -15,11 +17,15 @@
 
 🎖₊ $${\color{#2E8B57}\text{ ask me before say my name / using pronouns.}}$$
 
-🎖₊ $${\color{#2E8B57}\text{Apagender+Interbinary? - Pansexual}}$$
+🎖₊ $${\color{#2E8B57}\text{Apagender+Interbinary - Abrosexual}}$$
 
 🎖₊ $${\color{#2E8B57}\text{Boundaries : basic DNI, Trump/Prabowo supporter DNI, Boundaries breaker DNI. }}$$
 
 🎖₊ $${\color{#2E8B57}\text{ I block freely.}}$$
+
+🎖₊ $${\color{#2E8B57}\text{ Always IWC/CAREUF }}
+
+🎖₊ $${\color{#2E8B57}\text{ I sometimes have TD/CD. be aware. }}
 
 🎖₊ $${\color{#2E8B57}\text{my favorite animals were Swan, Arctic fox, owl, and snow leopard }}$$
 

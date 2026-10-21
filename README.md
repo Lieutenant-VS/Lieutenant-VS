@@ -19,6 +19,8 @@
 
 🎖₊ $${\color{#2E8B57}\text{Apagender+Interbinary - Abrosexual}}$$
 
+🎖₊ $${\color{#2E8B57}\text{ Horrible mood swing. be careful }}$$
+
 🎖₊ $${\color{#2E8B57}\text{Boundaries : basic DNI, Trump/Prabowo supporter DNI, Boundaries breaker DNI. }}$$
 
 🎖₊ $${\color{#2E8B57}\text{ I block freely.}}$$
@@ -26,6 +28,8 @@
 🎖₊ $${\color{#2E8B57}\text{ Always IWC/CAREUF }}$$
 
 🎖₊ $${\color{#2E8B57}\text{ I sometimes have TD/CD. be aware. }}$$
+
+🎖₊ $${\color{#2E8B57}\text{ yeah, go ahead talk to me, sure we can be friends. }}$$
 
 🎖₊ $${\color{#2E8B57}\text{my favorite animals were Swan, Arctic fox, owl, and snow leopard }}$$
 

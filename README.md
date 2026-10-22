@@ -72,6 +72,19 @@ $${\color{#2E8B57}\text{ Survivalist, General /「 Yellow General』. }}$$
 
 <div align="center">
 <details>
+  <summary><b> Pony Skin. </b></summary>
+  <br>
+
+  $${\color{#f1ee8e}\text{ Always in this skin }}$$
+
+  wip
+
+
+</details>
+</div>
+
+<div align="center">
+<details>
   <summary><b> Something. </b></summary>
   <br>
 

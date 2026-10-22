@@ -77,6 +77,10 @@ $${\color{#2E8B57}\text{ Survivalist, General /「 Yellow General』. }}$$
 
   $${\color{#f1ee8e}\text{ Always in this skin }}$$
 
+  <img width="1500" height="500" alt="Image" src="https://github.com/user-attachments/assets/69e8df8d-2b35-42d3-b305-2cc7905d79c3" />
+
+  wip
+
   wip
 
 

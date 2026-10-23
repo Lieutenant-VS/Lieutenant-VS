@@ -79,6 +79,8 @@ $${\color{#2E8B57}\text{ Survivalist, General /「 Yellow General』. }}$$
 
   <img width="1500" height="500" alt="Image" src="https://github.com/user-attachments/assets/69e8df8d-2b35-42d3-b305-2cc7905d79c3" />
 
+  <img width="1500" height="500" alt="Image" src="https://github.com/user-attachments/assets/349aff40-ade5-45a4-b6fc-078bc93d10be" />
+
   wip
 
   wip

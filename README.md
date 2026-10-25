@@ -19,6 +19,8 @@
 
 🎖₊ $${\color{#2E8B57}\text{Apagender+Interbinary - Abrosexual}}$$
 
+🎖₊ $${\color{#2E8B57}\text{ Horrible Memory }}$$
+
 🎖₊ $${\color{#2E8B57}\text{ Horrible mood swing. be careful }}$$
 
 🎖₊ $${\color{#2E8B57}\text{Boundaries : basic DNI, Trump/Prabowo supporter DNI, Boundaries breaker DNI. }}$$
@@ -62,6 +64,10 @@ $${\color{#2E8B57}\text{ Survivalist, General /「 Yellow General』. }}$$
   $${\color{#f1ee8e}\text{☆₊}}$$  $${\color{#6A784B}\text{ Faith The Unholy Trinity}}$$
 
   $${\color{#f1ee8e}\text{☆₊}}$$  $${\color{#6A784B}\text{ SCP }}$$
+
+  $${\color{#f1ee8e}\text{☆₊}}$$  $${\color{#6A784B}\text{ CoD - Call Of Duty }}$$
+
+  $${\color{#f1ee8e}\text{☆₊}}$$  $${\color{#6A784B}\text{ Resident Evil }}$$
 
   $${\color{#f1ee8e}\text{☆₊}}$$  $${\color{#6A784B}\text{ SuperSus }}$$
 

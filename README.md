@@ -17,7 +17,11 @@
 
 🎖₊ $${\color{#2E8B57}\text{ ask me before say my name / using pronouns.}}$$
 
-🎖₊ $${\color{#2E8B57}\text{Apagender+Interbinary - Abrosexual}}$$
+🎖₊ $${\color{#2E8B57}\text{Apagender - MirrorGender - Interbinary}}$$
+
+🎖₊ $${\color{#2E8B57}\text{ DemiAroace - Cupioromatic - Lithoromatic }}$$
+
+🎖₊ $${\color{#2E8B57}\text{ Abrosexual }}$$
 
 🎖₊ $${\color{#2E8B57}\text{ Horrible Memory }}$$
 
@@ -100,7 +104,7 @@ $${\color{#2E8B57}\text{ Survivalist, General /「 Yellow General』. }}$$
   <summary><b> Something. </b></summary>
   <br>
 
-  wip
+  🎖┊ 
 
   wip
 

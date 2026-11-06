@@ -104,7 +104,9 @@ $${\color{#2E8B57}\text{ Survivalist, General /「 Yellow General』, etc }}$$
   <summary><b> Something. </b></summary>
   <br>
 
-  🎖┊ 
+  🎖┊ My Flag. - Mostly LGBTQ+
+
+  wip
 
   wip
 

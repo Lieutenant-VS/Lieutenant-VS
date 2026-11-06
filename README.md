@@ -45,9 +45,13 @@ $${\color{#2E8B57}\text{ Abrosexual }}$$
 
 🎖₊ $${\color{#2E8B57}\text{I see myself in Lieutenant, Scientist, Joker, Medic, Lurker, }}$$
 
-$${\color{#2E8B57}\text{ Doctor, Survivor, Pink, Grey, Godfather, Noisemaker. }}$$
+╰ $${\color{#2E8B57}\text{ Doctor, Survivor, Godfather, Noisemaker. }}$$
 
-$${\color{#2E8B57}\text{ Survivalist, General /「 Yellow General』, etc }}$$
+╰ $${\color{#2E8B57}\text{ Survivalist, General /「 Yellow General』, etc }}$$
+
+🎖₊ $${\color{#2E8B57}\text{ I mostly won't ignored people. }}$$
+
+╰ $${\color{#2E8B57}\text{ If I did then I was busy, Forgot replying, or don't know how to respond }}$$
 
 </details>
 </div>
@@ -104,9 +108,9 @@ $${\color{#2E8B57}\text{ Survivalist, General /「 Yellow General』, etc }}$$
   <summary><b> Something. </b></summary>
   <br>
 
-  🎖┊ My Flag. - Mostly LGBTQ+
+  🎖┊ $${\color{#2E8B57}\text{ My Flag }}$$
 
-  wip
+  <img width="2048" height="455" alt="Image" src="https://github.com/user-attachments/assets/e0a1017d-33d4-4657-aa96-6e7ac6d37526" />
 
   wip
 

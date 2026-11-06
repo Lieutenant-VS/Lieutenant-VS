@@ -19,9 +19,9 @@
 
 🎖₊ $${\color{#2E8B57}\text{Apagender - MirrorGender - Interbinary}}$$
 
-🎖₊ $${\color{#2E8B57}\text{ DemiAroace - Cupioromatic - Lithoromatic }}$$
+$${\color{#2E8B57}\text{ DemiAroace - Cupioromatic - Lithoromatic }}$$
 
-🎖₊ $${\color{#2E8B57}\text{ Abrosexual }}$$
+$${\color{#2E8B57}\text{ Abrosexual }}$$
 
 🎖₊ $${\color{#2E8B57}\text{ Horrible Memory }}$$
 
@@ -35,19 +35,19 @@
 
 🎖₊ $${\color{#2E8B57}\text{ I sometimes have TD/CD. be aware. }}$$
 
-🎖₊ $${\color{#2E8B57}\text{ yeah, go ahead talk to me, sure we can be friends. }}$$
+🎖₊ $${\color{#2E8B57}\text{ yeah, go ahead talk to me, make sure we can be friends, if you keep intreact with me }}$$
 
-🎖₊ $${\color{#2E8B57}\text{my favorite animals were Swan, Arctic fox, owl, and snow leopard }}$$
+🎖₊ $${\color{#2E8B57}\text{my favorite animals were Swan, Arctic fox, snow leopard and owl }}$$
 
 🎖₊ $${\color{#2E8B57}\text{I love coffee and tea }}$$
 
-🎖₊ $${\color{#2E8B57}\text{ I can mirroring people energy, if i want it }}$$
+🎖₊ $${\color{#2E8B57}\text{ I can mirroring people energy, if i want. }}$$
 
 🎖₊ $${\color{#2E8B57}\text{I see myself in Lieutenant, Scientist, Joker, Medic, Lurker, }}$$
 
 $${\color{#2E8B57}\text{ Doctor, Survivor, Pink, Grey, Godfather, Noisemaker. }}$$
 
-$${\color{#2E8B57}\text{ Survivalist, General /「 Yellow General』. }}$$
+$${\color{#2E8B57}\text{ Survivalist, General /「 Yellow General』, etc }}$$
 
 </details>
 </div>

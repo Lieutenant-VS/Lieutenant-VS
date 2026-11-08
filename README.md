@@ -13,15 +13,15 @@
 
 🎖₊ $${\color{#2E8B57}\text{Aaron / ask me. }}$$
 
-🎖₊ $${\color{#2E8B57}\text{Any / Mirror Pronouns  }}$$
+🎖₊ $${\color{#2E8B57}\text{ Any / Mirror Pronouns  }}$$
 
 🎖₊ $${\color{#2E8B57}\text{ ask me before say my name / using pronouns.}}$$
 
 🎖₊ $${\color{#2E8B57}\text{Apagender - MirrorGender - Interbinary}}$$
 
-$${\color{#2E8B57}\text{ DemiAroace - Cupioromatic - Lithoromatic }}$$
+╰ $${\color{#2E8B57}\text{ DemiAroace - Cupioromatic - Lithoromatic }}$$
 
-$${\color{#2E8B57}\text{ Abrosexual }}$$
+╰ $${\color{#2E8B57}\text{ Abrosexual }}$$
 
 🎖₊ $${\color{#2E8B57}\text{ Horrible Memory }}$$
 
@@ -35,7 +35,7 @@ $${\color{#2E8B57}\text{ Abrosexual }}$$
 
 🎖₊ $${\color{#2E8B57}\text{ I sometimes have TD/CD. be aware. }}$$
 
-🎖₊ $${\color{#2E8B57}\text{ yeah, go ahead talk to me, make sure we can be friends, if you keep intreact with me }}$$
+🎖₊ $${\color{#2E8B57}\text{ yeah, go ahead talk to me, sure we can be friends, if you keep intreact with me }}$$
 
 🎖₊ $${\color{#2E8B57}\text{my favorite animals were Swan, Arctic fox, snow leopard and owl }}$$
 
@@ -111,6 +111,10 @@ $${\color{#2E8B57}\text{ Abrosexual }}$$
   🎖┊ $${\color{#2E8B57}\text{ My Flag }}$$
 
   <img width="2048" height="455" alt="Image" src="https://github.com/user-attachments/assets/e0a1017d-33d4-4657-aa96-6e7ac6d37526" />
+
+  🎖┊ $${\color{#2E8B57}\text{ Prefer Pronouns }}$$
+
+  $${\color{#2E8B57}\text{ He / Arctic / Gear / Moon }}$$
 
   wip
 

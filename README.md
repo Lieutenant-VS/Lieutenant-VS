@@ -112,9 +112,7 @@
 
   <img width="2048" height="455" alt="Image" src="https://github.com/user-attachments/assets/e0a1017d-33d4-4657-aa96-6e7ac6d37526" />
 
-  🎖┊ $${\color{#2E8B57}\text{ Prefer Pronouns }}$$
-
-  $${\color{#2E8B57}\text{ He / Arctic / Gear / Moon }}$$
+  wip
 
   wip
 

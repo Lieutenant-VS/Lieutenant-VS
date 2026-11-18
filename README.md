@@ -33,7 +33,9 @@
 
 🎖₊ $${\color{#2E8B57}\text{ Always IWC/CAREUF }}$$
 
-🎖₊ $${\color{#2E8B57}\text{ I sometimes have TD/CD. be aware. }}$$
+🎖₊ $${\color{#2E8B57}\text{ I sometimes have CD. be aware. }}$$
+
+╰ $${\color{#2E8B57}\text{ I hate people Crowded me so suddenly. }}$$
 
 🎖₊ $${\color{#2E8B57}\text{ yeah, go ahead talk to me, sure we can be friends, if you keep intreact with me }}$$
 

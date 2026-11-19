@@ -134,8 +134,7 @@
 
   🎖┊ $${\color{#2E8B57}\text{ Apologize }}$$
 
-  Hey, I am Aaron, I was 
-
+  Hi, I'm Aaron. This is for Indonesian people or other people who felt hurt after I put some Indonesian people as my DNI. I started realizing it was wrong because I never said more specific. It was my fault for being ignorant and how I tried to defend myself by it. Maybe none of the people gave me harm messages in my DM. But I wanted to apologize for it. After all, I realized it was immature of me thinking in that way. I didn't ask you to forgive me. I just realized how horrible I am to think in that way. I hope you can understand. - Sincerely Aaron
 
 </details>
 </div>

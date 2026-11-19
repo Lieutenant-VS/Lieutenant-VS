@@ -121,3 +121,21 @@
 
 </details>
 </div>
+
+<p align="center"> $${\color{#2E8B57}\text{ · · ⊰═══════⊱ ☆ ⊰═══════⊱ · · }}$$ </p>
+
+</details>
+</div>
+
+<div align="center">
+<details>
+  <summary><b> Important. </b></summary>
+  <br>
+
+  🎖┊ $${\color{#2E8B57}\text{ Apologize }}$$
+
+  Hey, I am Aaron, I was 
+
+
+</details>
+</div>
